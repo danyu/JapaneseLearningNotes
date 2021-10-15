@@ -1,5 +1,10 @@
 # JapaneseLearningNotes
 
+みず　お願いします. Water, please!
+初めまして
+さようなた　
+こんにちは
+
   
 私　わたし
 
